@@ -21,7 +21,7 @@
 -   An intuitive feeling, recognizing it must be true.
 -   almost like the orgnic life born of chance in a logically consiststant universe also
 -   couldn't logically be consistant as the interaction of thought and matter are being to be coded
--   and has been practiced for centuries lately as a combination of..... squrril  
+-   and has been practiced for centuries lately as a combination of..... squrril;;;;  
 
 <!---
 DuesMountani/DuesMountani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
